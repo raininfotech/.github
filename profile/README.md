@@ -1,4 +1,4 @@
-# RainInfotech PVT LTD.
+# Rain Infotech
 
 🧑‍💻 𝐓𝐄𝐂𝐇𝐍𝐈𝐂𝐀𝐋 𝐄𝐗𝐏𝐄𝐑𝐓𝐈𝐒𝐄
 
